@@ -1,5 +1,5 @@
 `<p align="center">
- <img src="https://media.discordapp.net/attachments/1491004845254119538/1566223460139667616/Tumblr_l_1338068501559304.gif?ex=6ae7c2c3&amp;is=6ae67143&amp;hm=ab29dc56e3367c28de0750b4a5e7846bb68519f9ef6fa9b3772a4d9627de55fc&amp;=" alt="Image"/><img width="105" height="59" alt="image" src="https://github.com/user-attachments/assets/47304641-8003-4628-8377-5e511771c083" />
+ <img width="105" height="59" alt="image" src="https://github.com/user-attachments/assets/47304641-8003-4628-8377-5e511771c083" />
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚⋆˚☆˖°⋆｡° ✮ <img src="https://media.discordapp.net/attachments/1491004845254119538/1566223461066612886/Tumblr_l_1332981911876712.jpg?ex=6ae7c2c4&amp;is=6ae67144&amp;hm=c55bbb5ab52faba82c6e8215b755b38d832452f295059d028db5a175dea99e6a&amp;=&amp;format=webp" alt="Image"/>
 
 
