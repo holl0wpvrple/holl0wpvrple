@@ -50,7 +50,7 @@
     <tr>
       <td>
       <img src="https://i.postimg.cc/15QNwYdL/Untitled99-20261031223634.png" width="300" <br>
-      <br>
+    <br>
       ☄ -13 ᴅɴɪ ᴜɴʟᴇꜱꜱ ᴀʙꜱᴏʟᴜᴛᴇʟʏ ɴᴇᴄᴇꜱꜱᴀʀʏ <br>
       <br>
         ☄ ɪ ʜᴀᴠᴇ ᴀ ᴠᴇʀʏ ꜱʜᴏʀᴛ ᴀᴛᴛᴇɴᴛɪᴏɴ ꜱᴘᴀɴ  <br>
@@ -75,7 +75,7 @@
     </tr>
   </table>
 <br>
-<p align="center">
+<p align="center"> <br>
 <img src="https://i.postimg.cc/NfN4fcJM/Tumblr-l-1349008833283402.gif"width="800px"   /> 
  <p align="center">
 .       .   {  ⚝ “🇮​​🇹​’​🇸​ ​🇳​​🇴​​🇹​ ​🇪​​🇦​​🇸​​🇾​ ​🇧​​🇪​​🇮​​🇳​​🇬​ ​🇫​​🇦​​🇲​​🇴​​🇺​​🇸​ <br>
