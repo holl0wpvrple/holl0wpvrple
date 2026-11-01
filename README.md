@@ -25,7 +25,7 @@
            ⌞ he /they / any ⌝  <br>
           ⌞ 17 yrs ⌝ <br>
           ⌞ pansexual boyflux ⌝ <br>
-       ⌞  GOJO IRL ! ⌝
+       ⌞  GOJO kin / IRL ! ⌝
           <br>
          ,
         ⋆ ☄︎.
