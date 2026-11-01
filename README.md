@@ -25,9 +25,12 @@
            ⌞ he /they / any ⌝  <br>
           ⌞ 17 yrs ⌝ <br>
           ⌞ pansexual boyflux ⌝ <br>
+       ⌞  GOJO IRL ! ⌝
           <br>
+         ,
         ⋆ ☄︎.
         ·˚ * 🔭  <br>
+         <br>
    <img src="https://i.postimg.cc/6qrpjYDz/Tumblr-l-216837259138863.png" width="100"> <img src="https://i.postimg.cc/x839yqzN/Tumblr-l-216847277536779.png" width="100" > <img src="https://i.postimg.cc/vmxM20nY/Tumblr-l-216849884125815.png=" width="100" ><br>
           <br>
           { Hai I’m Satoru!!!! I’m usually } <br>
