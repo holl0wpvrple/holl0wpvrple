@@ -1,5 +1,5 @@
 `<p align="center">
- <img width="105" height="59" alt="image" src="https://github.com/user-attachments/assets/47304641-8003-4628-8377-5e511771c083" />
+ <img width="98" height="56" alt="image" src="https://github.com/user-attachments/assets/04d646d3-f859-410b-a693-68a0a41e24c9" />
 ⋆˚☆˖°⋆｡° ✮˖ ࣪ ⊹⋆.˚⋆˚☆˖°⋆｡° ✮ <img src="https://media.discordapp.net/attachments/1491004845254119538/1566223461066612886/Tumblr_l_1332981911876712.jpg?ex=6ae7c2c4&amp;is=6ae67144&amp;hm=c55bbb5ab52faba82c6e8215b755b38d832452f295059d028db5a175dea99e6a&amp;=&amp;format=webp" alt="Image"/>
 
 
@@ -8,7 +8,7 @@
   <br>
   
   <p align="center">
-  {  ✧ you never lived in your truth, i’m just happy I lived in it . but I finally found peace, so peace .𖥔 ݁ ˖ } <img src="https://i.postimg.cc/nLR8xg8D/Tumblr-l-1349690673336184.gif"width="20">
+  {  ✧ 𝙮𝙤𝙪 𝙣𝙚𝙫𝙚𝙧 𝙡𝙞𝙫𝙚𝙙 𝙞𝙣 𝙮𝙤𝙪𝙧 𝙩𝙧𝙪𝙩𝙝, 𝙄'𝙢 𝙟𝙪𝙨𝙩 𝙝𝙖𝙥𝙥𝙮 𝙄 𝙡𝙞𝙫𝙚𝙙 𝙞𝙣 𝙞𝙩 . 𝙗𝙪𝙩 𝙄 𝙛𝙞𝙣𝙖𝙡𝙡𝙮 𝙛𝙤𝙪𝙣𝙙 𝙥𝙚𝙖𝙘𝙚 , 𝙨𝙤 𝙥𝙚𝙖𝙘𝙚 .𖥔 ݁ ˖ } <img src="https://i.postimg.cc/nLR8xg8D/Tumblr-l-1349690673336184.gif"width="20">
   <br>
   <br>
 <img src="https://i.postimg.cc/NfN4fcJM/Tumblr-l-1349008833283402.gif"width="500px"   /> 
@@ -74,7 +74,7 @@
       <br>
         ˚　　✦　　🛰️　.　　. 　 ˚　.　　☄️　 . ✦　　　 　
      <br>
-     ☄  ᴀʟʟ ᴛʜᴇ ᴄᴏᴅɪɴɢ ɪꜱ ᴍᴀᴅᴇ ʙʏ ᴍʏ ᴀᴡᴇꜱᴏᴍᴇ <br>
+     ☄  ᴄᴏᴅɪɴɢ ɪꜱ ᴍᴀᴅᴇ ʙʏ ᴍʏ ᴀᴡᴇꜱᴏᴍᴇ <br>
           ʙᴇᴀᴜᴛɪꜰᴜʟ ʙᴏʏꜰʀɪᴇɴᴅ <br>
           ..𖥔 ݁ ˖🛸── .✦
                  </p>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
@@ -87,7 +87,7 @@
  <p align="center">
 .       .   {  ⚝ “🇮​​🇹​’​🇸​ ​🇳​​🇴​​🇹​ ​🇪​​🇦​​🇸​​🇾​ ​🇧​​🇪​​🇮​​🇳​​🇬​ ​🇫​​🇦​​🇲​​🇴​​🇺​​🇸​ <br>
    ​🇦​​🇳​​🇾​​🇼​​🇦​​🇾​​🇸​, ​🇸​​🇴​ ​🇫​​🇦​​🇲​​🇴​​🇺​​🇸​ ​🇵​​🇪​​🇴​​🇵​​🇱​​🇪​ ​🇸​​🇦​​🇾” ᯓ✮  }      .       .​ <br>
-   <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b336857a-2a6b-4ad1-b696-4badb77f1aec" />
+   <img src="https://media.discordapp.net/attachments/1491004845254119538/1566223695670673609/Tumblr_l_1341895039856529.gif?ex=6ae7c2fc&amp;is=6ae6717c&amp;hm=6139eba10071cab15c5471677f9ee68c911cabeb783801f6ca36611e0603f7bd&amp;=" alt="Image"/><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/187cb712-82e2-4d31-96b1-9e49bbf6360d" />
 
  <br>
 
