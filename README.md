@@ -87,7 +87,9 @@
  <p align="center">
 .       .   {  ⚝ “🇮​​🇹​’​🇸​ ​🇳​​🇴​​🇹​ ​🇪​​🇦​​🇸​​🇾​ ​🇧​​🇪​​🇮​​🇳​​🇬​ ​🇫​​🇦​​🇲​​🇴​​🇺​​🇸​ <br>
    ​🇦​​🇳​​🇾​​🇼​​🇦​​🇾​​🇸​, ​🇸​​🇴​ ​🇫​​🇦​​🇲​​🇴​​🇺​​🇸​ ​🇵​​🇪​​🇴​​🇵​​🇱​​🇪​ ​🇸​​🇦​​🇾” ᯓ✮  }      .       .​ <br>
-  <img src="https://media.discordapp.net/attachments/1491004845254119538/1566223695670673609/Tumblr_l_1341895039856529.gif?ex=6ae7c2fc&amp;is=6ae6717c&amp;hm=6139eba10071cab15c5471677f9ee68c911cabeb783801f6ca36611e0603f7bd&amp;=" alt="Image"/><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/13927b66-9cc9-4be6-b53f-8e13e9e2a380" /> <br>
+   <img src="https://media.discordapp.net/attachments/1491004845254119538/1566223695670673609/Tumblr_l_1341895039856529.gif?ex=6ae7c2fc&amp;is=6ae6717c&amp;hm=6139eba10071cab15c5471677f9ee68c911cabeb783801f6ca36611e0603f7bd&amp;=" alt="Image"/><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b336857a-2a6b-4ad1-b696-4badb77f1aec" />
+
+ <br>
 
   .       .
    
