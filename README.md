@@ -10,7 +10,8 @@
 
   <br>
   
-  <p align="center">
+  <p align="center"> <img
+src="https://i.postimg.cc/nLR8xg8D/Tumblr-l-1349690673336184.gif"width="20">
   {  ✧ 𝙮𝙤𝙪 𝙣𝙚𝙫𝙚𝙧 𝙡𝙞𝙫𝙚𝙙 𝙞𝙣 𝙮𝙤𝙪𝙧 𝙩𝙧𝙪𝙩𝙝, 𝙄'𝙢 𝙟𝙪𝙨𝙩 𝙝𝙖𝙥𝙥𝙮 𝙄 𝙡𝙞𝙫𝙚𝙙 𝙞𝙣 𝙞𝙩 . 𝙗𝙪𝙩 𝙄 𝙛𝙞𝙣𝙖𝙡𝙡𝙮 𝙛𝙤𝙪𝙣𝙙 𝙥𝙚𝙖𝙘𝙚 , 𝙨𝙤 𝙥𝙚𝙖𝙘𝙚 .𖥔 ݁ ˖ } <img src="https://i.postimg.cc/nLR8xg8D/Tumblr-l-1349690673336184.gif"width="20">
   <br>
   <br>
